@@ -1,2 +1,0 @@
-# Pooya
-grytfu6
